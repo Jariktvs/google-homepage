@@ -1,1 +1,1 @@
-suka kak ze eto neponjatno
+Triyng to make google homepage
